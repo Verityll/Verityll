@@ -17,7 +17,7 @@
 
 <details>
 
-<summary>Hi! this is what gets displayed</summary>
+<summary>wip</summary>
 
 blah blah blah blah
 
@@ -25,7 +25,7 @@ blah blah blah blah
 
 <details>
 
-<summary>Hi! this is what gets displayed</summary>
+<summary>wip — fndms </summary>
 
 blah blah blah blah
 
