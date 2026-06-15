@@ -8,6 +8,6 @@
 
 ━━━━━━ ◦ ♡ ◦ ━━━━━━
 
-[STRAW](https://sikyd.straw.page) [RBLX](https://www.roblox.com/users/2005761045/profile)
+[STRAW](https://sikyd.straw.page) [RBLX](https://www.roblox.com/users/2005761045/profile) [PRNS](https://prns.cc/qbykw) 
 
  all these links are wip   and folow my RBLX nnuuooww
