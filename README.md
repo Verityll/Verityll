@@ -8,4 +8,6 @@
 
 ━━━━━━ ◦ ♡ ◦ ━━━━━━
 
- 
+[STRAW](https://sikyd.straw.page) [RBLX](https://www.roblox.com/users/2005761045/profile)
+
+ all these links are wip   and folow my RBLX nnuuooww
