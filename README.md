@@ -9,5 +9,3 @@
 ━━━━━━ ◦ ♡ ◦ ━━━━━━
 
 [STRAW](https://sikyd.straw.page)  [PRNS](https://prns.cc/qbykw) 
-
- all these links are wip   and folow my RBLX nnuuooww
